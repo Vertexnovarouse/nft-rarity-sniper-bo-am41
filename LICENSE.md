@@ -1,4 +1,4 @@
-# 
+# ultimate nft rarity sniper bot | liquidity-analysis + royalty-calculator is the best nft rarity sniper bot, featuring liquidity-analysis and royalty-calculator. Fast, smart, and
 
 
 
